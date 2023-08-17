@@ -1,1 +1,1 @@
-# EveTutorialLounge
+# Welcome to Eve Tutorial Lounge where this is going to be a collection of eve tutorials from navigation, base gameply and joining and finding corporations to more complex things like the market and mining how to mine and even best practices to use while doing such activities as well.
